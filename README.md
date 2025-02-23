@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @d0n2-3D-rk0
-- 👀 I’m interested in too many things
+- 👀 I’m interested in wayyyy too many things
 - 🌱 I’m currently learning py
 - 💞️ I’m looking to collaborate on more py
 - 📫 How to reach me ...euh...
