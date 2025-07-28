@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on more py
 - 📫 How to reach me ...euh...https://archiveprogram.github.com/
 - 😄 Pronouns: ...https://www.youtube.com/watch?v=Kh22m1QG6i4
-- ⚡ Fun fact: ...I'm partly German, English, Dutch, Indonesian w/ even a tiny bit Chinese thrown in
+- ⚡ Fun fact: ...I'm partly Dutch, Indonesian, English, German w/ even a tiny bit Chinese thrown in
 
 <!---
 d0n2-3D-rk0/d0n2-3D-rk0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
